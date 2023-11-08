@@ -5,10 +5,6 @@ https://ecn7wf.csb.app/
 
 https://etxdu6.csb.app/
 
-https://gpbn6t.csb.app/
-
-https://cc3lh8.csb.app/
-
 https://nmlqfr.csb.app/
 
 10 more to make: 
